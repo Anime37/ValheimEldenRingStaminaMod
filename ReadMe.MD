@@ -1,0 +1,1 @@
+https://www.nexusmods.com/valheim/mods/2236
